@@ -15,3 +15,9 @@ listado de plantas de interior:
 -Lengua de suegra
 -Tronco Brasil
 -Costilla de Adán
+
+CUIDADOS
+
+corte de hojas
+
+refrescante
