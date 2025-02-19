@@ -16,6 +16,12 @@ listado de plantas de interior:
 -Tronco Brasil
 -Costilla de Adán
 
+
+CONSEJOS
+conoce tu planta
+
+baño de sol
+
 CUIDADOS
 
 corte de hojas
